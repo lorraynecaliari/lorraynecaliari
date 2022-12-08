@@ -1,6 +1,5 @@
 ### Oii!! Eu sou a Lorrayne Caliari
 
-- 🌱 Estudando JavaScript / Android Studio / Xcode
 - 😄 Pronomes: ela/dela
 - 📫 Contate-me no email: lorraynevictoria727@gmail.com
 
