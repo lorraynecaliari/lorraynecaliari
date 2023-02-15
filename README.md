@@ -1,7 +1,7 @@
 ### Oii!! Eu sou a Lorrayne Caliari
 
 - 😄 Pronomes: ela/dela
-- 📫 Contate-me no email: lorraynevictoria727@gmail.com
+- 📫 Contate-me no email: lorraynevictoria272@gmail.com
 
 ##
 
